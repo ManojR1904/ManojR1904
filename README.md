@@ -20,5 +20,5 @@ I thrive in **collaborative environments**, continuously learning and applying n
 - Adaptability and continuous learning  
 - Team collaboration and communication  
 - Analytical mindset and logical thinking
-- 
+  
 Thanks for stopping by! 😊  
